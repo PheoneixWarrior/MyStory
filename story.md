@@ -1,1 +1,1 @@
-Hi, Im Joi the dog, How are you? Did you know that my name is "joy" in french? I am so exited! So this is the story about how me and my bestest human friend, Sealina Miles, stopped the evil of saladen the cat.
+Hi, Im Joi the dog, How are you? Did you know that my name is "joy" in french? I am so exited! So this is the story about how me and my bestest human friend, Sealina Miles, stopped the evil of saladen the cat. So one day we were out for a walk when we noticed this new cat walking around.
